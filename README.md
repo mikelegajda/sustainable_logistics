@@ -1,1 +1,1 @@
-# sustainable_logistics
+# Sustainable logistocs course
