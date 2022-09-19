@@ -1,1 +1,1 @@
-# Digitalizatiion and Sustainable logistics course
+# Digitalization and Sustainable logistics course
